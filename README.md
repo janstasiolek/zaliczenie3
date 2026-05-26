@@ -1,1 +1,1 @@
-# zaliczenie3
+Jan Stasiołek Uniwersytet Pomorski w Słuspku
